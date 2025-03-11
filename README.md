@@ -16,6 +16,5 @@ LinkedIn : https://www.linkedin.com/in/lakshay-pahuja-099a6924b/
 Gmail : lakshaypahuja777@gmail.com
 
 
-Telegram : @devilmax5
 
 
